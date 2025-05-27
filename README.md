@@ -23,18 +23,24 @@ Cashier (Feb 2023 – Present)
 
 Summerhill Market, Toronto
 
-- Handled 100–200 transactions per shift using POS systems
-- Reduced checkout time by 15–20% through efficient workflow
-- Balanced drawer with 100% accuracy
-- Boosted positive customer feedback by 20%
+- Greet and serve over 100 customers daily, delivering professional and friendly service to ensure a positive shopping experience.
+- Process 100–200 transactions per shift with speed and accuracy using POS systems, scanners, and digital payment platforms.
+- Maintain a balanced cash drawer with 100% accuracy by reconciling sales and completing shift-end reports.
+- Weigh and price 50–70 bulk and produce items per shift while ensuring proper labeling and pricing integrity.
+- Collaborate with front-end team members to reduce checkout time by 15–20% through optimized customer flow and quick bagging.
+- Support store operations during peak hours and holidays by stepping into additional roles when needed, enhancing team efficiency.
+- Contributed to a 20% increase in positive customer reviews through consistent, solution-oriented service.
 
 Grocery Clerk (Sep 2022 – Sep 2023)
 
 Metro, Toronto
 
-- Stocked and organized 200+ items daily
-- Assisted 30–50 customers per shift with personalized service
-- Improved stockroom-to-floor efficiency by 20%
+- Priced, labelled, and stocked 200+ products per shift using digital tools and inventory systems to ensure accurate presentation.
+- Assisted 30–50 customers daily by providing personalized service, answering product inquiries, and offering recommendations.
+- Maintained visual merchandising standards by organizing end caps, aisles, and display areas, contributing to improved customer navigation.
+- Handled backroom operations including unloading, inventory checks, and shelf restocking, resulting in a 20% increase in product availability.
+- Coordinated with team members to maintain a clean, safe, and efficient work environment during high-traffic hours.
+- Helped train new hires on stocking procedures and customer service best practices, promoting a collaborative store culture.
 
 EDUCATION  (2024 – Oct 2025)
 
